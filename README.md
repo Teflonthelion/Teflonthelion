@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Teflonthelion
-- 👀 I’m interested in ...Blockchain technology
+- 👀 I’m interested in ...Crypto Projects
 - 🌱 I’m currently learning ...Blockchain development
 - 💞️ I’m looking to collaborate on ...crypto projects
 - 📫 How to reach me ... @Teffylion X)
